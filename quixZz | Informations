@@ -1,0 +1,4 @@
+- 👋 Hi. I’m @quuixZz, and im 16 years old.
+- 👀 I’m currently interested in coding stuff, and everything like that.
+- 🌱 At the time im learning the coding langue html.
+- 📫 Contact details, Discord: quixZz#5685 | Telegram: https://t.me/quuixZz
