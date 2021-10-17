@@ -2,4 +2,5 @@
 - 👀 I’m currently interested in coding stuff, and everything like that.
 - 🌱 At the time im learning the coding langue html.
 - 🛒 My sellix - https://sellix.io/quuixZz
+- 💻 Discord server: https://discord.gg/pvvPh4ed
 - 📫 Contact details, Discord: quixZz#5685 | Telegram: https://t.me/quuixZz
