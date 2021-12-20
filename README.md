@@ -3,4 +3,4 @@
 - 🌱 At the time im learning the coding langue html.
 - 💻 Discord server: https://discord.gg/pvvPh4ed
 - 🛒 My sellix - https://sellix.io/quuixZz
-- 📫 Contact details, Discord: quixZz#5685 | Telegram: https://t.me/quuixZz
+- 📫 Contact details, Discord: quixZz#1337 | Telegram: https://t.me/quuixZz
